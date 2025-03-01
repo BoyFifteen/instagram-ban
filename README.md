@@ -12,4 +12,4 @@ Our goal is to help you eliminate harassment or recover your banned account.
 	•	Dispute Resolution: Helping you address account suspensions or imposed restrictions.
   • ban prices : from 50$ to 500$
   • unban prices:from 100$ to 1000$
-   - contact :https:/t.me//BoyFifteen
+   - contact :https://t.me/BoyFifteen
