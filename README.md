@@ -1,5 +1,5 @@
 # instagram-ban 
-Instagram Ban Service 
+Instagram Ban Service
 
 # Overview
 
