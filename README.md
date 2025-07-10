@@ -7,7 +7,7 @@ The Instagram Ban Service provides specialized assistance to individuals and bus
 
 Our goal is to help you eliminate harassment or recover your banned account.
 
-# Services Offered
+# Services Offered 
 	•	permanently Account Banning: Assistance with permanently banning accounts.
 	•	Dispute Resolution: Helping you address account suspensions or imposed restrictions.
   • ban prices : from 50$ to 500$
