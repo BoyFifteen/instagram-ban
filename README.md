@@ -10,6 +10,6 @@ Our goal is to help you eliminate harassment or recover your banned account.
 # Services Offered 
 	•	permanently Account Banning: Assistance with permanently banning accounts.
 	•	Dispute Resolution: Helping you address account suspensions or imposed restrictions.
-  • ban prices : from 50$ to 500$
-  • unban prices:from 100$ to 1000$ 
+  #• ban prices : from 50$ to 500$
+  #• unban prices:from 100$ to 1000$ 
    - contact :https://t.me/BoyFten
